@@ -44,4 +44,4 @@ We may update this Privacy Policy from time to time. Changes will be reflected w
 
 If you have any questions about this Privacy Policy, please contact:
 
-Email: your_email@example.com
+Email: uz_fiz@gmail.com
